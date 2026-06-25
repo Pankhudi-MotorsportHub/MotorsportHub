@@ -1,3 +1,5 @@
+ORIGINALLY PUBLISHED ON JUNE 19,2026
+
 ## _Raw draft (Curated purely by myself):_
 After the recent incident with the Monaco Grand Prix standings, Mercedes has withdrawn their petition for the right of review with the FIA.
 During the Monaco GP, George served a 5-second penalty for pit lane speed limit infringement, followed by a drive-through penalty, for not going through with the initial 5-second penalty levied upon him, which reinstated him from running in 3rd position to 12th.
