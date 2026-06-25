@@ -1,4 +1,4 @@
-ORIGINALLY PUBLISHED ON JUNE 19,2026
+### ORIGINALLY PUBLISHED ON JUNE 19,2026
 
 ## _Raw draft (Curated purely by myself):_
 After the recent incident with the Monaco Grand Prix standings, Mercedes has withdrawn their petition for the right of review with the FIA.
